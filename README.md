@@ -1,1 +1,3 @@
-luongtruonggiang-21810310122-d16cnpm4
+Họ và tên : Trần Thế Duyệt
+Lớp : D116CNPM4
+Mã sinh viên : 21810310489
